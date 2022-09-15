@@ -2,7 +2,7 @@
 
 Previous [Diary](https://aryanmangla23.github.io/08-31-2022/)
 
-Next [Diary](https://aryanmangla23.github.io/09-06-2022/)
+Next [Diary](https://aryanmangla23.github.io/09-11-2022/)
 
 What have I done since 08/31?
 
